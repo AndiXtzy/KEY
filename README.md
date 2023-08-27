@@ -1,1 +1,2 @@
-AKSES KEY SCRIPT ASIA 🇮🇩
+Bukan sc bro
+tapi licence key sc premium 😵‍💫🖤
