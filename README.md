@@ -1,2 +1,1 @@
-Bukan sc bro
-tapi licence key sc premium 😵‍💫🖤
+Data Base Meta 🗿✨
